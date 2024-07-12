@@ -1,0 +1,1 @@
+# LpTendencyNew0712
